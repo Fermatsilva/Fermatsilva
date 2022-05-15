@@ -1,4 +1,4 @@
-### Hi there, I'm João Fernandes ☺️: :v:
+### Hi there, I'm João Fernandes 😎: :v:
 - 📚 Hoje eu curso matemática aplicada
 - 🎮 Estudando HTML & CSS
 - 🤖 Pronouns: ele/dele
