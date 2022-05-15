@@ -1,5 +1,5 @@
 ### Hi there, I'm João Fernandes 😎: :v:
-- 📚 Hoje eu curso matemática aplicada
+- 📚 Cursando matemática aplicada
 - 🎮 Estudando HTML & CSS
 - 🤖 Pronouns: ele/dele
 
