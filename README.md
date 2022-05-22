@@ -1,7 +1,6 @@
 ### Hi there, I'm João Fernandes 😎: :v:
 - 📚 Cursando matemática aplicada
 - 🎮 Estudando HTML & CSS
-- 🤖 Pronouns: ele/dele
 
 <br />
 
